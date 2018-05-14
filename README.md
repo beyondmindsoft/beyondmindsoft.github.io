@@ -1,0 +1,2 @@
+# beyondmindsoft.github.io
+mypage
